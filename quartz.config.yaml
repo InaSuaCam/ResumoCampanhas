@@ -7,7 +7,7 @@ configuration:
   analytics:
     provider: plausible
   locale: en-US
-  baseUrl: scrpgu.github.io
+  baseUrl: inasuacam.github.io/ResumoCampanhas
   ignorePatterns:
     - private
     - templates
