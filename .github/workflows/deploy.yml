@@ -18,13 +18,13 @@ jobs:
   build:
     runs-on: ubuntu-latest
     steps:
+      - name: Setup Git Safe Directory
+        run: git config --global --add safe.directory '*'
+
       - name: Checkout
         uses: actions/checkout@v4
         with:
           fetch-depth: 0
-
-      - name: Fix Git Safe Directory
-        run: git config --global --add safe.directory /github/workspace
 
       - name: Setup Node
         uses: actions/setup-node@v4
