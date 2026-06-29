@@ -22,7 +22,6 @@ jobs:
         uses: actions/checkout@v4
         with:
           fetch-depth: 0
-          safe-directory: true
 
       - name: Setup Node
         uses: actions/setup-node@v4
@@ -33,7 +32,10 @@ jobs:
         run: npm ci
 
       - name: Build Quartz
-        run: npx quartz build
+        run: |
+          git config --global --add safe.directory /github/workspace
+          git config --global --add safe.directory /home/runner/work/ResumoCampanhas/ResumoCampanhas
+          npx quartz build
 
       - name: Upload artifact
         uses: actions/upload-pages-artifact@v3
