@@ -1,0 +1,4 @@
+---
+tags:
+  - Personaxe_xogador
+---

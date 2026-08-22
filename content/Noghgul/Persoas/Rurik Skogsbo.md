@@ -1,0 +1,1 @@
+Humano. Pai de [[Galdelig Skogsbo]] e marido de [[Aeryn]].

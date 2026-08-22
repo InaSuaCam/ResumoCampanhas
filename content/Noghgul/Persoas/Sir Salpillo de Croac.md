@@ -1,0 +1,1 @@
+Bullywug. Estaba ao servizo do [[Señor das Fadas]] e tiña como encargo vixiar a [[Gastav]].

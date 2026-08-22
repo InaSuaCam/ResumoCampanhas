@@ -1,0 +1,1 @@
+Humano. Membro máis respectado da [[Banda da Troita e o Estilete]] e o maior espadachín de todo [[Noghgul]]. A banda débelle o seu nome a este e case tódolos seus membros intentan imitalo.

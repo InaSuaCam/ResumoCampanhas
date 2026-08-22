@@ -1,0 +1,1 @@
+Feérico. Señor e amo de tódolos feéricos. Tiña un trato con [[Gastav]]. Foi avistado por [[Nyara]] ao inicio de [[1. O verán de Darnaan. Gremio de panadeiros. Aventuras Noghgulenses. Vol I]]. Ao final desta sesión, viuse cerca de [[Darnaan]]. [[Sir Salpillo de Croac]] estaba ao seu servizo.

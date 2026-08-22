@@ -1,0 +1,1 @@
+Vello cazador que criou a [[Galdelig Skogsbo]]. Estaba afiliado ao [[Gremio de Cazadores]].

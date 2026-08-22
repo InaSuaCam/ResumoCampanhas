@@ -1,0 +1,1 @@
+Aliado de [[Lord Soth]] derrotado polos [[Escudeiros do Vingaard]].

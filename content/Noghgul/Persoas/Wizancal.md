@@ -1,0 +1,1 @@
+Humana. Boticaria de [[Gentruth]]. [[Nyara]] e [[Galdelig Skogsbo]] son clientes seus habituais e [[Syllow Roo]] véndelle materiais. Forma parte da [[Tríada de Gentruth]] e está enemistada con [[Irler]], aínda que lle importa máis ese segredo.

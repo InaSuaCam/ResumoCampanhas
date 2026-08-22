@@ -1,0 +1,1 @@
+Firbolg. Anterior firbolg de [[Gentruth]]. Defunto pai de [[Syllow Roo|Syllow]] e [[Mejdell Roo]].

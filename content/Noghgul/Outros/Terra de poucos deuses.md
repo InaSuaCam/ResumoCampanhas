@@ -1,0 +1,1 @@
+A espiritualidade típica doutras rexión é infrecuente en [[Noghgul]]. Os sacerdotes son raros e predican fes que son minoritarias e descoñecidas pola maioría, sendo estranxeiros a meirande parte deles. A xente guíase máis por superstición que por fe estrita e mesmo algúns din que Nohgul é unha terra abandonada polos deuses.

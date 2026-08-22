@@ -1,0 +1,1 @@
+Elfa dos bosques. Nai de [[Galdelig Skogsbo]] e muller de [[Rurik Skogsbo]].

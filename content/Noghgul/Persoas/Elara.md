@@ -1,0 +1,1 @@
+Humana. Filla dun rico nobre. Amante de [[Galdelig Skogsbo]].

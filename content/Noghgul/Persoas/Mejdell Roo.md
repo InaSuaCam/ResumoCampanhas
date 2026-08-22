@@ -1,0 +1,1 @@
+Firbolg. Compartiu o posto de firbolg de [[Gentruth]] co seu irmán [[Syllow Roo]] ata que desapareceu. Fillo de [[Ludwig Roo]].

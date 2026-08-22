@@ -1,0 +1,1 @@
+Fului e Schroven Tiskenrei son os encargados de verter unha xerra de vinagre nos pantanos de [[Gentruth]]. Foron secruestrados por [[Irler]] despois de enganalos en [[2. O verán de Gentruth. O que vive entre os xuncos. Aventuras Noghgulenses. Vol II]].

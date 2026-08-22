@@ -1,0 +1,1 @@
+Novo líder do [[Gremio de Panadeiros]] de [[Darnaan]], reemprazando a [[Gastav]].

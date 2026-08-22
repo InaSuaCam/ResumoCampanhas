@@ -1,0 +1,1 @@
+Contratou ao grupo antes de [[1. O verán de Darnaan. Gremio de panadeiros. Aventuras Noghgulenses. Vol I]] e unha semana máis tarde repetiu aliñación para enviarlle cartos ao seu curmán de [[Darnaan]], xa que o [[Gremio de Panadeiros|gremio de panadeiros]] non paraba de subir o prezo do pan.

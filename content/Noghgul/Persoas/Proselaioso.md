@@ -1,0 +1,1 @@
+Contacontos de [[Tanavrid]] que viaxou ata [[Gentruth]] para a [[Fantochada de Gönsof|fantochada de Gönsof]]. Prestounos a súa barca para cruzar as marismas en [[2. O verán de Gentruth. O que vive entre os xuncos. Aventuras Noghgulenses. Vol II]].

@@ -1,0 +1,1 @@
+Humano. Habitante de [[Gentruth]]. Antigo membro da [[Tríada de Gentruth]]. Secuestrou aos [[Xemelgos Tiskenrei|xemelgos Tiskenrei]] en [[2. O verán de Gentruth. O que vive entre os xuncos. Aventuras Noghgulenses. Vol II]].
