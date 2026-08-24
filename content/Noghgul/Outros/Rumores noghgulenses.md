@@ -1,0 +1,14 @@
+- Os [[Habitantes e paisanos|eladrin]] teñen [[Srrich]].
+- [[Carola Whisperflower]] é unha [[Zwittenin|zwittenin]].
+- [[CC]] é o [[Cazador-cervo]].
+- Dise que o [[Trasno arquiveiro]] garda rumores de todas as aldeas [[Noghgul]] no seu arquivo interminable mentres fuma unha longa pipa feita de marfil e escribe cunha pluma de grifón.
+- [[CC]] pertence á [[Tríada de Gentruth]].
+- [[Mejdell Roo]] está morto.
+- [[Nyara]] foi afectada polo [[Señor das Fadas]].
+- Segundo din os noghgulenses de [[Ceznal]], a súa aldea veciña, [[Tanavrid]], está case sempre cuberta de nubes porque entre os veciños vive un nubeiro que agocha o seu fogar (unha cova no cumio do monte) de miradas indiscretas, onde garda nubes de sarabia que sae a pastorear durante o outono e o inverno
+- Non é mito nin rumor algún que esta árbore exista de verdade, o que se pon en dúbida é o que se conta sobre el. Cando [[Gentruth]] era pouco máis que catro casas espalladas entre a lama, á árbore caeulle un lóstrego que lle deu a súa característica forma. Anos despois, coa madeira, golpeada polo lóstrego, fíxose un bote que dicían ser o máis veloz de todo [[Trisht]], [[Noghgul]] e [[Fetergan]]. O bote pertenceu a [[Uleiros Forgan]], un pescador do que se saben pouca máis cousas que este dato. Por outra banda, inda en [[Gentruth]], se sabes a quen preguntar, opinan que o bote segue escondido entre os xuncos de [[Gentruth]], agardando a que alguén volva a collelo para fender as olas e deixar atrás ao seu propio ronsel.
+- [[Mejdell Roo]] pertence á [[Tríada de Gentruth]],
+- Por [[Noghgul]] non hai moitas compañías de teatro, mais a [[Alba Vetusta]] é unha das máis coñecidas. Porén, hai anos que ninguén sabe dela e que non se presentan en ningunha festividade. Nin na [[Fantochada de Gönsof]] nin na [[Mascarada de Xanado]]. Isto levou a moitos a especular e a esbardallar sobre o seu destino, mais si se sabe que a última vez que se viron foi preto [[Bosque do Verde Lique]], e sendo este o bosque máis denso de [[Noghgul]], as teorías non son boas para os feirantes.
+- No [[Monte do Moucho|monte de Moucho]], ao sur leste de [[Ceznal]], fálase dunha fonte que está rodeada dunhas antigas ruínas. Valos de pedras cubertas de brión, columnas que suxeitaban un teito escachado e, no centro, un manancial de prístinas augas expulsa unha auga con barbullo fino e cristalino. Tempo atrás, os que foran malditos, acudían a esta fonte para beber das súas augas e librarse da maldición que os aflixía.
+- [[Mejdell Roo]] agora vive en [[Trisht]].
+- Moitas figuras públicas de [[Noghgul]] son vítimas de acusacións infundadas ou, quizais non tanto. Pode que, ser unha figura pública en [[Noghgul]] é tan pouco común que iso é xa motivo de sobra para que te chamen [[zwittenin]].

@@ -1,1 +1,1 @@
-Humano. Anterior líder do [[Gremio de Panadeiros]] de [[Darnaan]]. É un [[Zwittenin|zwittenin]], xa que fixo un trato co [[Señor das Fadas]] para conseguir unha pócima de amor. Ten unha bolboreta no cú. Estaba aliado con [[Sir Salpillo de Croac]].
+Humano. Anterior líder do [[Gremio de Panadeiros]] de [[Darnaan]]. É un [[Zwittenin|zwittenin]], xa que fixo un trato co [[Señor das Fadas]] para que este último conseguise unha pócima de amor. Ten unha bolboreta no cú. Estaba aliado con [[Sir Salpillo de Croac]].

@@ -1,0 +1,1 @@
+Habitante de [[Helcheg]]. [[Wizancal]] falounos sobre el ao final de [[2. O verán de Gentruth. O que vive entre os xuncos. Aventuras Noghgulenses. Vol II]], indo a visitalo todos en [[3. O verán en Helcheg. Cousas do millo. Aventuras Noghgulenses. Vol III]].
