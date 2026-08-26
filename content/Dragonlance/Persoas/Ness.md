@@ -1,0 +1,1 @@
+Dragona metálica fundadora de [[Heart's Hollow]]. Conecímola na [[Sesión 9_DL|sesión 9]].

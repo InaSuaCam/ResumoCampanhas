@@ -34,7 +34,7 @@ Ante a dificultade de criar un fillo mestizo mentres [[Rurik Skogsbo|Rurik]] per
 
 A infancia de Galdelig foi un equilibrio entre a dureza e a aprendizaxe. [[Thorne]] era un mestre severo que o deixaba só no bosque nocturno para que aprendese a cazar por instinto, pero tamén era un mentor que lle ensinaba matemáticas e tamén certa literatura, tamén lle provía de libros de historia e poesía para educalo ben ainda que estiveran lexos das escolas.
 
-A súa vida cambiou aos catorce anos, cando Thorne o levou por primeira vez a [[Darnaan]]. Alí, entre o bullicio e o aroma do mercado, Galdelig viu a [[Elara]], a filla dun nobre local, e quedou cegado polo seu brillo. Un encargo de caza para a casa do Barón permitiu o primeiro contacto, e dende entón, Galdelig soubo que o seu destino non sería só a exploración dos montes, senón en chegar a ser digno de bailar con ela nese salón prohibido.
+A súa vida cambiou aos catorce anos, cando [[Thorne]] o levou por primeira vez a [[Darnaan]]. Alí, entre o bullicio e o aroma do mercado, Galdelig viu a [[Elara]], a filla dun nobre local, e quedou cegado polo seu brillo. Un encargo de caza para a casa do Barón permitiu o primeiro contacto, e dende entón, Galdelig soubo que o seu destino non sería só a exploración dos montes, senón en chegar a ser digno de bailar con ela nese salón prohibido.
 
 Durante anos, Galdelig e [[Thorne]] foron unha gran parexa no bosque. Porén, o tempo non perdoa, e [[Thorne]] foi minguando co peso dos invernos. Hai tres anos, o vello mestre faleceu na paz da súa cabana, pasando a antorcha ao seu pupilo. Galdelig enterrouno coas súas propias mans e asumiu o posto oficial de Gardabosques, converténdose no provedor de carne para a nobreza e no protector dos camiños
 

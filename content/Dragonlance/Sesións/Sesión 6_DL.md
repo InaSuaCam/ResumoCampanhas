@@ -1,3 +1,7 @@
+---
+tags:
+  - Sesión
+---
 A sesión comezou cos [[Escudeiros do Vingaard]] recuperándose da retirada do inicio da [[Sesión 5_DL]]. Estes foron ordenados volver a [[Kalaman]].
 
 Unha vez en [[Kalaman]], o noso grupo de aventureiros diríxese á base de operacións do exército kalamaniano. Alí, atopan o resultado da batalla dos [[Cabaleiros do Vingaard]] contra [[Caradoc]]. Ademais, na sala había unha carta cun selo de cera negra coa marca dunha rosa e unha elfa, que máis tarde desapareceu. Ao chegar, a [[Mariscal Vendri|mariscal Vendri]] e [[Darreth]] pregúntanlles que aconteceu. Despois do resumo, os [[Escudeiros do Vingaard]] adentráronse nas mazmorras, onde descubriron o pasado de [[Lord Soth]] e se enfrontaron contra un antigo aliado seu: [[Zanas Sarlamir]]. No combate destacou [[Krunir Boi]], chegando a impresionar a [[Edesin Ainsford]], que pasou de apodalo [[Krunir Boi|Tetas suaves]] a apodalo [[Krunir Boi|Tetas duras]] durante o combate.

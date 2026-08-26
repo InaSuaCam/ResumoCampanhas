@@ -8,7 +8,7 @@ tags:
 
 Raza: Humano solamniano.  
 Clase: Guerreiro cabaleiro psi, nivel 6.  
-Trasfondo: Cabaleiro de Solamnia.  
+Trasfondo: [[Cabaleiro de Solamnia]].  
 Aliñamento: Legal bo.
 
 ## Datos físicos:

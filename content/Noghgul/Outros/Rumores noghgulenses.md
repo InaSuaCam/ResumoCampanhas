@@ -1,7 +1,7 @@
 - Os [[Habitantes e paisanos|eladrin]] teñen [[Srrich]].
 - [[Carola Whisperflower]] é unha [[Zwittenin|zwittenin]].
 - [[CC]] é o [[Cazador-cervo]].
-- Dise que o [[Trasno arquiveiro]] garda rumores de todas as aldeas [[Noghgul]] no seu arquivo interminable mentres fuma unha longa pipa feita de marfil e escribe cunha pluma de grifón.
+- Dise que o [[Trasno arquiveiro]] garda rumores de todas as aldeas de [[Noghgul]] no seu arquivo interminable mentres fuma unha longa pipa feita de marfil e escribe cunha pluma de grifón.
 - [[CC]] pertence á [[Tríada de Gentruth]].
 - [[Mejdell Roo]] está morto.
 - [[Nyara]] foi afectada polo [[Señor das Fadas]].
@@ -12,3 +12,4 @@
 - No [[Monte do Moucho|monte de Moucho]], ao sur leste de [[Ceznal]], fálase dunha fonte que está rodeada dunhas antigas ruínas. Valos de pedras cubertas de brión, columnas que suxeitaban un teito escachado e, no centro, un manancial de prístinas augas expulsa unha auga con barbullo fino e cristalino. Tempo atrás, os que foran malditos, acudían a esta fonte para beber das súas augas e librarse da maldición que os aflixía.
 - [[Mejdell Roo]] agora vive en [[Trisht]].
 - Moitas figuras públicas de [[Noghgul]] son vítimas de acusacións infundadas ou, quizais non tanto. Pode que, ser unha figura pública en [[Noghgul]] é tan pouco común que iso é xa motivo de sobra para que te chamen [[zwittenin]].
+- O nome real de [[Noghgul]] é Naghgul, pero un ser misterioso cambiouno na cabeza de todos os locais. Por este motivo, os estranxeiros pronuncian Naghgul e non [[Noghgul]].

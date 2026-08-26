@@ -2,6 +2,11 @@ Corpo de élite ao servizo de Kalaman substituto dos [[Cabaleiros do Vingaard]].
 
 Membros:
 - [[Edesin Ainsford]]
-- [[Krunir Boi]]
+- [[Fabónez]]
 - [[Marcel Noether]]
+- 
+
+
+Membros anteriores:
+- [[Krunir Boi]]
 - [[Vallinda, Sierratodo]]

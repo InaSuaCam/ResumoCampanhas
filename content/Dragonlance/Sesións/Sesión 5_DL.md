@@ -1,3 +1,7 @@
+---
+tags:
+  - Sesión
+---
 A sesión comezou cos [[Cabaleiros do Vingaard]] axudando a retirarse ao pelotón de [[Darreth]] nun bosque. Destacou [[Erwin Karagath]], levantando unha rocha xigante.
 
 Despois, os [[Cabaleiros do Vingaard]] regresaron a [[Kalaman]] e foron visitar ao [[Gobernador Miat|gobernador Miat]]. Alí, atopáronse a toda a élite de [[Kalaman]] asasinada e a un home de tez escura. Despois de acabar rapidamente coa súa vida, descubriron que estaba poseído por un servo de [[Lord Soth]], [[Caradoc]]. Durante o combate, este poseeu a [[Erwin Karagath]] e procedeu a matar a todos os [[Cabaleiros do Vingaard]]. Primeiro, [[Theokon]] sucumbiu ás feridas de ser aplastado contra o teito e caer. Logo, [[Húskar]] foi rematado coa espada de [[Erwin Karagath|Erwin]]. O último en darlle pelexa a [[Caradoc]] foi [[Abel Riesz]], pero ao perder a ventaxa da distancia, o noso arqueiro acabou perdendo o combate por nada, para que [[Caradoc]] lle aplastase a cabeza. Finalmente, [[Caradoc]] suicidou a [[Erwin Karagath|Erwin]], acabando con todos os [[Cabaleiros do Vingaard]].

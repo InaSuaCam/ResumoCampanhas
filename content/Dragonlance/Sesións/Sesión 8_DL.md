@@ -1,0 +1,11 @@
+---
+tags:
+  - Sesión
+---
+A sesión comezou cos [[Escudeiros do Vingaard]] explorando os [[Eriais do Septentrión]] acompañados de [[Dalmar]] despois de abandonar o lugar no que rematou a [[Sesión 7_DL]]. Durante a viaxe, apareceu un [[gusano púrpura]] que case come a [[Krunir Boi]], que parou a súa boca cos seus múculos.
+
+Finalmente, o grupo chegou á [[Torre Wolkenreth]], unha antiga torre élfica anterior ao [[Cataclismo Ishtariano]]. Subindo, [[Vallinda, Sierratodo]], falla co gancho e tírallo [[Krunir Boi|Krunir]]. En cambio,  [[Marcel Noether]] fai un mortal. Tamén coñecemos a [[Gentida]], unha antiga diplomática elfa morta. Alí había unha maxia antiga e poderosa que intentara levar parte da torre ao [[Feywild]], pero acabou no [[Shadowfell]]. [[Vallinda, Sierratodo]], entrou nun portal atada por unha corda. Alí, unha pantasma élfica chamada [[Beriel]] cóntalle como arranxar a maxia, pero aparece unha monstruosidade e [[Vallinda, Sierratodo|Vallinda]] falla no sinal, tirando máis de dúas veces, polo que corre ata o portal e persíguea a monstruosidade. Despois de derrotala, [[Vallinda, Sierratodo|Vallinda]] arranxa o ritual e a torre viaxa a onde debería. [[Dalmar]] dinos que despois dun día sería capaz de xa dicirnos onde se atopa a [[Ciudadela dos Nomes Perdidos]].
+
+Despois de que [[Marcel Noether|Marcel]] sorprendese a unhas [[mantícoras]] co seu gran espectáculo, o grupo chega a unha cova de sal azul, onde son recibidos por unha anana [[Grasha]]. Esta informa de que a cova está invadida por draconianos e [[Vallinda, Sierratodo|Vallinda]] idea un plan para explotalos dentro mentres [[Edesin Ainsford]] e [[Marcel Noether|Marcel]] fan trucos de maxia. Despois de usar a [[Edesin Ainsford]] como cebo, os ananos pagan ao grupo con $700$ po, pero [[Marcel Noether|Marcel]] dille a [[Krunir Boi|Krunir]] que diga que son $600$ para gañar $50$ cada un.
+
+Finalmente, o grupo volve á [[Torre Wolkenreth]], onde [[Dalmar]] informa da localización da [[Ciudadela dos Nomes Perdidos]].

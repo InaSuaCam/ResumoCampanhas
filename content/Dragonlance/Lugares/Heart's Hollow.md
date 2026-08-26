@@ -1,0 +1,1 @@
+Cidade que se atopa no medio dos [[Eriais do Septentrión]] habitada por humanos, ananos e gnomos. Foi fundada por [[Ness]].
