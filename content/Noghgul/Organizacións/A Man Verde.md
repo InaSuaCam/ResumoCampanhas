@@ -12,3 +12,5 @@ Inda que semella una irmandade de salvaxes, a Man Verde conta con xerarquía e e
 - **Druída**: Este é o, hasta agora coñecido, maior rango da Man Verde. Adórnanse con máscaras e largas batas e son as bibliotecas viventes que resgardan todo o coñecemento acumulado da Man Verde. Este culto non emprega a escritura, polo que a memoria é fundamental para a Man Verde.
 
 Polo do que se ten constancia, a Man Verde non emprega un símbolo único, pero onde se vexa actividade en lugares indómitos, recoméndase precaución, especialmente si se ve un debuxo ou gravado dunha curuxa.
+
+Actualmente está interesada en acabar coas vidas de [[Carola Whisperflower]], [[Galdelig Skogsbo]], [[Koro]], [[Nyara]] e [[Syllow Roo]].

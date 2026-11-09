@@ -1,1 +1,1 @@
-Humano. Membro máis respectado da [[Banda da Troita e o Estilete]] e o maior espadachín de todo [[Noghgul]]. A banda débelle o seu nome a este e case tódolos seus membros intentan imitalo.
+Humano. Membro máis respectado da [[Banda da Troita e o Estilete]] e o maior espadachín de todo [[Noghgul]]. A banda débelle o seu nome a este e case tódolos seus membros intentan imitalo. Coñecímolo en [[1. O verán de Darnaan. Gremio de panadeiros. Aventuras Noghgulenses. Vol I]].

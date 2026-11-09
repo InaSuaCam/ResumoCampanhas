@@ -1,0 +1,1 @@
+(Anterior?) Alcalde de [[Ceznal]]. Dise que matou á súa muller e por iso o edificio do concello está encantado.

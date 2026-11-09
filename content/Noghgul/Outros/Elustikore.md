@@ -1,0 +1,1 @@
+Amuletos de protección para o millo.

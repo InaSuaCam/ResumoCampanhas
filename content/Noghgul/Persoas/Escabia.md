@@ -1,0 +1,1 @@
+Taberneiro da pousada de [[Helcheg]], [[Fume de carozo]]. Coñecímolo en [[3. O verán en Helcheg. Cousas do millo. Aventuras Noghgulenses. Vol III]].

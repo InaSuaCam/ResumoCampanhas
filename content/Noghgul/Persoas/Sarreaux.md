@@ -1,0 +1,1 @@
+Habitante de [[Helcheg]]. O seu pai é [[Braulio]]. Antigo axudante do alguacil.

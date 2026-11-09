@@ -1,0 +1,1 @@
+Mítico reino histórico que englobaba os territorios que actualmente corresponden a [[Trisht]], [[Noghgul]], [[Karirgh occidental]] e [[Fetergan]]. Foi protexida por [[Urik Arlad]] e a [[Entidade suprema do Mito]].

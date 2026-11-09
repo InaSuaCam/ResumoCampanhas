@@ -22,3 +22,6 @@ Un Astrólogo podería vivir xunto cos seus dous ou tres Pupilos nunha cas con b
 Aínda que a Lúa Minguante é unha orde sen templos e os lugares de reunión non sexan moi públicos, si que posúen edificios propios ao longo de [[Noghgul]].
 
 O emblema desta orde é unha estrela de sete puntas cunha lúa minguante no seu interior.
+
+Membros:
+- [[Nostelio]].

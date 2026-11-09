@@ -1,0 +1,1 @@
+Habitante de [[Helcheg]]. Ten un fillo chamado [[Sarreaux]] e non se levaba ben con [[Listanco]] nin con [[Celidonio]] Este ano a súa familia está encargada de recoller o millo. Coñecímolo en [[3. O verán en Helcheg. Cousas do millo. Aventuras Noghgulenses. Vol III]].

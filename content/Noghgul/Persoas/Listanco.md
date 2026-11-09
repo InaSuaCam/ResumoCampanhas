@@ -1,0 +1,1 @@
+Fabricante de bonecas de [[Helcheg]]. Era amigo de [[Celidonio]]. Coñecímolo en [[3. O verán en Helcheg. Cousas do millo. Aventuras Noghgulenses. Vol III]].

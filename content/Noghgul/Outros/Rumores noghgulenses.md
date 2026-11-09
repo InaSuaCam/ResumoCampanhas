@@ -13,3 +13,5 @@
 - [[Mejdell Roo]] agora vive en [[Trisht]].
 - Moitas figuras públicas de [[Noghgul]] son vítimas de acusacións infundadas ou, quizais non tanto. Pode que, ser unha figura pública en [[Noghgul]] é tan pouco común que iso é xa motivo de sobra para que te chamen [[zwittenin]].
 - O nome real de [[Noghgul]] é Naghgul, pero un ser misterioso cambiouno na cabeza de todos os locais. Por este motivo, os estranxeiros pronuncian Naghgul e non [[Noghgul]].
+- [[Carola Whisperflower]] está interesada en unirse á [[A Man Verde|Man Verde]].
+- [[Lorens Candasbag]] sobreviviu a unha ameaza de morte da [[A Man Verde|Man Verde]].

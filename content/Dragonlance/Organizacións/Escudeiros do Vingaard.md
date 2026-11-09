@@ -4,7 +4,7 @@ Membros:
 - [[Edesin Ainsford]]
 - [[Fabónez]]
 - [[Marcel Noether]]
-- 
+- [[Dovius Pomposa]]
 
 
 Membros anteriores:

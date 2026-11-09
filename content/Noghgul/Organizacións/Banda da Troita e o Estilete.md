@@ -13,3 +13,6 @@ Inda que non hai nada pactado ao respecto, moitos membro adoran as capas longas,
 Non hai rangos nesta irmandade, pero todos respectan ao lendario [[Tolisondo de Sanadina]], o maior espadachín que coñeceu [[Noghgul]] e que dicir do seu impecable estilo. A banda débelle a súa marca es este home, así como case toda a formación que os seus membros poden recibir na arte da esgrima, o xoga de mans e a impecable e desconcertante dialéctica destes desconcertantes criminais.
 
 A marca da banda é unha troita ensartada por un estilete.
+
+Membros:
+- [[Tolisondo de Sanadina]].
