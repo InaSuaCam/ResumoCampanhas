@@ -1,1 +1,1 @@
-Sanadora e pitonisa de [[Helcheg]]. Ten unha tenda chamada [[O veo de Cristimil]]. Era amiga de [[Celidonio]]. Coñecímola en [[3. O verán en Helcheg. Cousas do millo. Aventuras Noghgulenses. Vol III]].
+Sanadora e pitonisa de [[Helcheg]]. Ten unha tenda chamada [[O veo de Cristimil]]. Era amiga de [[Celidonio]]. Coñecímola en [[3. O verán de Helcheg. Cousas do millo. Aventuras Noghgulenses. Vol III]].

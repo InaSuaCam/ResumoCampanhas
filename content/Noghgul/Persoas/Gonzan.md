@@ -1,1 +1,1 @@
-Alguacil de [[Helcheg]]. Coñecímolo en [[3. O verán en Helcheg. Cousas do millo. Aventuras Noghgulenses. Vol III]].
+Alguacil de [[Helcheg]]. Coñecímolo en [[3. O verán de Helcheg. Cousas do millo. Aventuras Noghgulenses. Vol III]].
